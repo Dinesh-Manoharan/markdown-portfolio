@@ -1,0 +1,2 @@
+- Studing B.Tech from SCSVMV,Kanchipuram 📕
+- from Hosur,Tamilnadu 💒
