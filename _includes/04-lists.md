@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+- Studing B.Tech from SCSVMV,Kanchipuram 📕
+- from Hosur,Tamilnadu 💒
